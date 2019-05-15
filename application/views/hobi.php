@@ -1,0 +1,1 @@
+hobi saya adalah bermain tembak tembakan
